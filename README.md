@@ -30,6 +30,4 @@ Website design templates are pre-designed layouts that help businesses and indiv
 - [Graphic & UI Templates](https://www.templatemonster.com/)  
 
 ## Conclusion
-Website design templates are an excellent way to create a professional and functional website efficiently. By choosing the right template and customizing it thoughtfully, you can build an attractive, responsive, and user-friendly website that represents your brand effectively. We provide best services https://www.yusatech.com.au/custom-website-development/
-
-![Website Template Example](https://via.placeholder.com/800x400.png?text=Website+Template+Example)
+Website design templates are an excellent way to create a professional and functional website efficiently. By choosing the right template and customizing it thoughtfully, you can build an attractive, responsive, and user-friendly website that represents your brand effectively. We provide best services https://www.yusatech.com.au/graphic-design/
